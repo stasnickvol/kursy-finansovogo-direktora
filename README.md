@@ -1,7 +1,3 @@
----
-title: "Курсы финансового директора: топ-35 лучших в 2026 году"
----
-
 <img width="1288" height="648" alt="Screenshot 2026-02-05 at 14 31 46" src="https://github.com/user-attachments/assets/2fe7d8dc-2cde-4332-a64e-44f43fb7b446" />
 
 # Курсы финансового директора: топ-35 лучших в 2026 году
